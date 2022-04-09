@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @maraple8
-- 🌱 I’m currently learning DS
 - 💞️ I’m looking to collaborate on ...
 - 📫 804738321@qq.com
 
